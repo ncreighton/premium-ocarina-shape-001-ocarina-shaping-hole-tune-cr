@@ -1,0 +1,2 @@
+# premium-ocarina-shape-001-ocarina-shaping-hole-tune-cr
+Tired of losing track of your ocarina's hole placements and tuning adjustments across scattered notes and sketches? Bring order to your craft with a dedicated system that captures every detail of your shaping and tuning process.  The Ocarina Shaping &amp; Hole Tune Craft Hub solves the chaos of managing multiple ocarina projects by centralizing all you
